@@ -6,7 +6,7 @@
 
 🎨 **Designer & Artist**  
 🎶 **Composer**  
-📚 **Student**
+📚 **Student (High School, probably I will finish school in next year.)**
 
 I’m passionate about combining creativity with technology, exploring the worlds of design, art, and music. As a student, I strive to learn something new every day and share my journey with others.
 
