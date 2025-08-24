@@ -1,6 +1,6 @@
-# 👋 Hi, I’m mildannerofc
+# 👋 Hi, I’m Mildanner.
 
-> Medium Blue Guy
+> The Medium Blue Guy
 
 ---
 
