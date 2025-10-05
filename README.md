@@ -1,11 +1,9 @@
 # 👋 Hi, I’m Mildanner.
 
-> The Medium Blue Guy
-
 ---
 
 🎨 **Designer & Artist**  
-🎶 **Composer**  
+🎶 **Composer/Arranger**  
 📚 **Student (High School, probably I will graduate school in next year.)**
 
 I’m passionate about combining creativity with technology, exploring the worlds of design, art, and music. As a student, I strive to learn something new every day and share my journey with others.
